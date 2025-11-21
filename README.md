@@ -3,12 +3,12 @@
 
 - [LITE PACK](https://t.me/send?start=IVcl4Y1gzyM0)
 
-![prewiev](https://anontransfer.com/d/YIo0Fh5Ens)
+![prewiev](https://allwebs.ru/image/photo-2025-11-21-13-39-57.OauaYN)
 
 - [MEDIUM PACK](https://t.me/send?start=IVICNnCDCUQh)
 
-![prewiev](https://anontransfer.com/d/nbrG2GrUBj)
+![prewiev](https://allwebs.ru/image/photo-2025-11-21-13-39-54.OaugCj)
 
 - [HARD PACK](https://t.me/send?start=IVzapECJqGwR)
 
-![prewiev](https://anontransfer.com/d/mDbTqAuvq2)
+![prewiev](https://allwebs.ru/image/photo-2025-11-21-13-42-10.OaukMX)
