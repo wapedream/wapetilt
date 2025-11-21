@@ -3,12 +3,12 @@
 
 - [LITE PACK](https://t.me/send?start=IVcl4Y1gzyM0)
 
-!(https://allwebs.ru/image/photo-2025-11-21-13-39-57.OauaYN)
+!([lite](https://github.com/konoplastyj-dotcom/wapetilt/blob/main/lite.jpg))
 
 - [MEDIUM PACK](https://t.me/send?start=IVICNnCDCUQh)
 
-!(https://allwebs.ru/image/photo-2025-11-21-13-39-54.OaugCj)
+!([medium](https://github.com/konoplastyj-dotcom/wapetilt/blob/main/med.jpg))
 
 - [HARD PACK](https://t.me/send?start=IVzapECJqGwR)
 
-!(https://allwebs.ru/image/photo-2025-11-21-13-42-10.OaukMX)
+!([hard](https://github.com/konoplastyj-dotcom/wapetilt/blob/main/hard.jpg))
