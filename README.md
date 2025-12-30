@@ -3,6 +3,8 @@
 
 - [ТЕЛЕГРАМ](https://telegra.ph/DOSTUP-V-KANAL-12-30)
 
+- [Для покупки паков в RUB писать сюда](https://t.me/youdreambaby)
+
 - [LITE PACK 5$](https://t.me/send?start=IVcl4Y1gzyM0)
 
 ![lite](https://github.com/user-attachments/assets/34d2b232-3699-47c3-9e1c-a8a929894c5f)
