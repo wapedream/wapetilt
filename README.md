@@ -1,7 +1,7 @@
 ## RU: Все приватные паки находятся по ссылке ниже.
 ## ENG: All private packs are located at the link below.
 
-- [ТЕЛЕГРАМ](https://t.me/youdieta)
+- [ТЕЛЕГРАМ](https://telegra.ph/DOSTUP-V-KANAL-12-30)
 
 - [LITE PACK 5$](https://t.me/send?start=IVcl4Y1gzyM0)
 
