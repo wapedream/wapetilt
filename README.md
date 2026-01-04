@@ -3,7 +3,7 @@
 
 - [share t33n girl TELEGRAM](https://t.me/FlinraBot?start=r-youdreambaby)
 
-- [ТЕЛЕГРАМ](https://telegra.ph/DOSTUP-V-KANAL-12-30)
+- [ТЕЛЕГРАМ КАНАЛ](https://telegra.ph/DOSTUP-V-KANAL-12-30)
 
 - [Для покупки паков в RUB писать сюда](https://t.me/youdreambaby)
 
