@@ -1,9 +1,9 @@
 ## RU: Все приватные паки находятся по ссылке ниже.
 ## ENG: All private packs are located at the link below.
 
-- [share t33n girl TELEGRAM](https://t.me/FlinraBot?start=r-youdreambaby)
-
-- [ТЕЛЕГРАМ КАНАЛ](https://telegra.ph/DOSTUP-V-KANAL-12-30)
+- [FREE TG CHANNEL](https://go.linkify.ru/2FEN)
+  
+- [ТГ КАНАЛ БЕСПЛАТНО](https://telegra.ph/DOSTUP-V-KANAL-12-30)
 
 - [Для покупки паков в RUB писать сюда](https://t.me/youdreambaby)
 
@@ -18,3 +18,5 @@
 - [HARD PACK 15$](https://t.me/send?start=IVpYIN2CGPga)
 
 ![hard](https://github.com/user-attachments/assets/e8f0a484-4949-4424-8e8a-55280c280139)
+
+- [share t33n girl TELEGRAM](https://t.me/FlinraBot?start=r-youdreambaby)
